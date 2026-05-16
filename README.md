@@ -25,4 +25,4 @@ small boundaries thing and other ; im working on being a very optimistic positiv
 <br>
 i ask u dont copy my skins or genderbend my characters qwq 
 <img src="https://i.ibb.co/HLKn9xyc/1000002819-removebg-preview.png">
-art creds; twow09 & walmartyuuji
+art creds; twow09 & walmartyuuji.. I LOVE RABBITS
