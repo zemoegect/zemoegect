@@ -16,6 +16,10 @@ other fandoms ; fnaf (my spinterest!), hsr, phighting, block tales, pokemon, uma
 <br>
   <br>
 streamers/youtubers i watch ; ashswag, saparata, squiddo, wemmbu, markiplier, evbo, clownpierce, spokeishere, partotx2, wifies, flamefrags, derapchu, flamingo, chazington, etccc
+  <br>
+  duos ; ALL DUOS SO COOL
+  <br>
+  ships ; clownbo clownbo clownbo, clownzy, slimeknight, a1p1, a116, zegect, qrmoe, barioru, rorebura, im gonna be honest i like too many
 <img src="https://i.ibb.co/vx8BMCj3/1000002821-removebg-preview.png">
 small boundaries thing and other ; im working on being a very optimistic positive person. I with all my heart believe in peace, love and prosperity for all!
 <br>
