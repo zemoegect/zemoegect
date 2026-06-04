@@ -9,7 +9,7 @@
 <br>
 dni; proshippers/darkshippers, radqueers, nazis, and all that if the sort are not welcome. i block freely! im intolerant of intolerance. iiid prefer if ur heavily into ashwron to not int, the fans have just been rlly weird to me in the past -_-;
 <img src="https://i.ibb.co/bjBPr3yM/1000002775-removebg-preview.png">
-mc fandoms ; unstable universe, lifesteal, hermitcraft, parkour civ, pvp civ, aregect, cl16 continuity, sfawtde, mfarg, shiparg, qamp2 (just ash.), bliss, wisp, mace, etc
+mc fandoms ; unstable universe, lifesteal, hermitcraft, parkour civ, pvp civ, speedrun ac, uuh state smp, aregect, cl16 continuity, sfawtde, mfarg, shiparg, qamp2 (just ash.), bliss, wisp, mace, etc
   plans to watch; DaD, flightsmp
 <br>
   <br>
