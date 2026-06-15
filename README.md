@@ -10,13 +10,14 @@
 dni; proshippers/darkshippers, radqueers, nazis, and all that if the sort are not welcome. i block freely! im intolerant of intolerance. iiid prefer if ur heavily into ashwron to not int, the fans have just been rlly weird to me in the past -_-;
 <img src="https://i.ibb.co/bjBPr3yM/1000002775-removebg-preview.png">
 mc fandoms ; unstable universe, lifesteal, hermitcraft, parkour civ, pvp civ, speedrun ac, uuh state smp, aregect, cl16 continuity, sfawtde, mfarg, shiparg, qamp2 (just ash.), bliss, wisp, mace, etc
-  plans to watch; DaD, flightsmp
+  <br>
+  plans to watch; DaD, flight, abyss 
 <br>
   <br>
 other fandoms ; fnaf (my spinterest!), hsr, phighting, block tales, pokemon, umamusume, ut/dr, etc etc
 <br>
   <br>
-streamers/youtubers i watch ; ashswag, saparata, squiddo, wemmbu, markiplier, evbo, clownpierce, spokeishere, parrotx2, wifies, flamefrags, planetlord, dumbisdumb, flamingo, chazington, etccc
+streamers/youtubers i watch ; ashswag, saparata, squiddo, wemmbu, markiplier, evbo, clownpierce, spokeishere, parrotx2, wifies, flamefrags, planetlord, dumbisdumb, iamstormz, loppezz, flamingo, chazington, etccc
   <br>
   duos ; ALL DUOS SO COOL!!! WE LOVE PLATONIC FRIENDSHIPS HERE!
   <br>
