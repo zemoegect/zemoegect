@@ -17,14 +17,13 @@ mc fandoms ; unstable universe, lifesteal, hermitcraft, parkour civ, pvp civ, sp
 other fandoms ; fnaf (my spinterest!), hsr, phighting, block tales, pokemon, umamusume, ut/dr, etc etc
 <br>
   <br>
-streamers/youtubers i watch ; ashswag, saparata, squiddo, wemmbu, markiplier, evbo, clownpierce, spokeishere, parrotx2, wifies, flamefrags, planetlord, dumbisdumb, iamstormz, loppezz, flamingo, chazington, etccc
+streamers/youtubers i watch ; ashswag, saparata, squiddo, wemmbu, markiplier, evbo, clownpierce, spokeishere, parrotx2, wifies, flamefrags, planetlord, dumbisdumb, iamstormz, loppezz, coinmonke, wyll_, flamingo, chazington, etccc
   <br>
   duos ; ALL DUOS SO COOL!!! WE LOVE PLATONIC FRIENDSHIPS HERE!
   <br>
-  ships ; clownbo clownbo clownbo, clownzy, slimeknight, a1p1, fluxarata, a116, zegect, squidswag, qrmoe, barioru, rorebura, im gonna be honest i like too many.. as long as the ccs are utterly ok with it for their characters / its normal ^^
+  ships ; clownbo, clownzy, slimeknight, a1p1, fluxarata, a116, zegect, squidswag, qrmoe, barioru, rorebura, im gonna be honest i like too many.. as long as the ccs are utterly ok with it for their characters / its normal ^^
 <img src="https://i.ibb.co/vx8BMCj3/1000002821-removebg-preview.png">
-small boundaries thing and other ; im working on being a very optimistic positive person. I with all my heart believe in peace, love and prosperity for all!
 <br>
-i ask u dont copy my skins or genderbend my characters qwq 
+i ask u dont copy my skins or genderbend my characters qwq idrc about anything else
 <img src="https://i.ibb.co/HLKn9xyc/1000002819-removebg-preview.png">
-art creds; twow09 & walmartyuuji.. I LOVE RABBITS AND BUNNIES AND HARES send me rabbit pictures 
+art creds; twow09.. I LOVE RABBITS AND BUNNIES AND HARES send me rabbit pictures 
