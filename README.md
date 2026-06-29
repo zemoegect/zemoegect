@@ -2,7 +2,7 @@
 <img src="https://64.media.tumblr.com/63db89dc5345b0b6f0c8896389581981/a65d3247135c5676-25/s1280x1920/9874f12f4850d1ca5431eaad59d524c496579b9d.pnj">
 <p align="center"> simula / simulacrum or ..
 <br> 
-  vanilla . evbo .. </p>
+  vanilla . nilla .. </p>
 <p align="center"> 17 . they/he/any . any terms . mc fixation .. <br> agender queer ..</p>
 <p align="center">info ; big minecraft liker who draws.. c+h always okai !! im reaaally socially anxious so w2i is preferred, but its alright if not! I just get nervous!
 <br>
