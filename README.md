@@ -1,27 +1,14 @@
-<p align="center"> "When I opened it up, I realized it was written in <i>parkour</i>"</p>
+<img src="https://i.postimg.cc/hPWHDXcP/typewriter-(1).gif">
+
 <img src="https://i.ibb.co/MDGxnRYm/New-Project-14.png">
-<p align="center"> simula / simulacrum or ..
-<br> 
-  vanilla . nilla .. </p>
-<p align="center"> 17 . they/he/any . any terms . mc fixation .. <br> agender queer ..</p>
-<p align="center">info ; big minecraft liker who draws.. c+h always okai !! im reaaally socially anxious so w2i is preferred, but its alright if not! I just get nervous!
+<p align="center"> simula / simulacrum .. 17 . any terms .</p>
+<p align="center"> ‹　Int okai !﹕　C+H enc !　DNC plz ;^;　﹕　check sp for not listed info　　　</p>
+<p align="center">BYI ; I'm extremely anxious/paranoid due to intrusive thoughts. Combined with memory issues and neurodivergence, I can be kinda hard to talk to! I love talking to people tho, and will put my best efforts
 <br>
+  feel free to call me nicknames or really any name idm
 <br>
-dni; proshippers/darkshippers, radqueers, nazis, and all that if the sort are not welcome. i block freely! im intolerant of intolerance. iiid prefer if ur heavily into ashwron to not int, the fans have just been rlly weird to me in the past -_-;
-<img src="https://i.ibb.co/bjBPr3yM/1000002775-removebg-preview.png">
-mc fandoms ; unstable universe, lifesteal, hermitcraft, parkour civ, pvp civ, speedrun ac, uuh state smp, aregect, cl16 continuity, sfawtde, the rabbit hole, shiparg, wisp, mace, MCSR, etc
-  <br>
-  plans to watch; DaD, flight, abyss, wisp, mace, I rlly need to catch up on bliss
-<br>
-  <br>
-other fandoms ; fnaf (my spinterest!), hsr, phighting, block tales, pokemon, umamusume, ut/dr, etc etc
-<br>
-  <br>
-  duos ; ALL DUOS SO COOL!!! WE LOVE PLATONIC FRIENDSHIPS HERE!
-  <br>
-  ships ; clownbo, clownzy, slimeknight, a1>p1, fluxarata, a116, zegect, squidswag, qrmoe, barioru, rorebura, im gonna be honest as long as the ccs are utterly ok with it for their characters / its normal I think it's fine
-<img src="https://i.ibb.co/vx8BMCj3/1000002821-removebg-preview.png">
-<br>
-i ask u dont copy my skins or genderbend my characters qwq idrc about anything else
-<img src="https://i.ibb.co/HLKn9xyc/1000002819-removebg-preview.png">
-art creds; twow09.. I LOVE RABBITS AND BUNNIES AND HARES send me rabbit pictures 
+dni; proshippers/darkshippers, radqueers, nazis, and all that if the sort are not welcome. i block freely! pref bb DNI, I get very paranoid around you guys -_-;
+
+<a href="https://simulacrum.atabook.org/">ATABOOK</a>  :   <a href="https://victinicardd.carrd.co/">KINLIST</a>
+
+
