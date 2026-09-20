@@ -2,7 +2,7 @@
 
 <img src="https://i.ibb.co/MDGxnRYm/New-Project-14.png">
 <p align="center"> simula / simulacrum .. 17 . any terms .</p>
-<p align="center"> ‹　Int okai !﹕　C+H enc !　DNC plz ;^;　﹕　check sp for not listed info　　　</p>
+<p align="center"> ‹　Int okai !﹕　C+H enc !　﹕　check sp for not listed info　　　</p>
 <p align="center">BYI ; I'm extremely anxious/paranoid due to intrusive thoughts. Combined with memory issues and neurodivergence, I can be kinda hard to talk to! I love talking to people tho, and will put my best efforts
 <br>
   <br>
