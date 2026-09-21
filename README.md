@@ -10,6 +10,7 @@
 <br>
   <br>
 dni; proshippers/darkshippers, radqueers, nazis, and all that if the sort are not welcome. i block freely! pref bb DNI, I get very paranoid around you guys -_-;
+oh also DNI if you're friends with fourthkindred/whatever she goes by now. for my comfort and mental health.
 
 <a href="https://simulacrum.atabook.org/">ATABOOK</a>  :   <a href="https://victinicardd.carrd.co/">KINLIST</a>
 
