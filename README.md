@@ -16,4 +16,6 @@ oh also DNI if you're friends with fourthkindred/whatever she goes by now. for m
 
 <br>
 extra ;;
-feel free to gift me skins I think it's super kind!! idc if span accounts follow me. ask for dc. I only rp with friends. again, I'm spoke levels of paranoid. my anxiety spikes very easily, but I rlly love making friends and want to! I'll do my best to be a good friend! I turn 18 this nov
+feel free to gift me skins I think it's super kind!! idc if spam accounts follow me. ask for dc. I only rp with friends. again, I'm spoke levels of paranoid. my anxiety spikes very easily, but I rlly love making friends and want to! I'll do my best to be a good friend! I turn 18 this nov
+<br>
+I've been told I talk/type super weird, so uh warning. I don't understand slang I'm sorry...
