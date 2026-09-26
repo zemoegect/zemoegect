@@ -9,9 +9,11 @@
   call me any name idm! ur gonna have to int with me first unless friends I'm so sorry I'm irrationally scared I'll curse someone if I talk to them first
 <br>
   <br>
-dni; proshippers/darkshippers, radqueers, nazis, and all that if the sort are not welcome. i block freely! pref bb DNI -_-;
+dni; if ur weird (darkship, radqueers, ect) or just bigoted. I block freely but having a specific DNI makes me nervous 
 oh also DNI if you're friends with fourthkindred/whatever she goes by now. for my comfort and mental health.
 
 <a href="https://simulacrum.atabook.org/">ATABOOK</a>  :   <a href="https://victinicardd.carrd.co/">KINLIST</a>
 
-
+<br>
+extra ;;
+feel free to gift me skins I think it's super kind!! idc if span accounts follow me. ask for dc. I only rp with friends. again, I'm spoke levels of paranoid. my anxiety spikes very easily, but I rlly love making friends and want to! I'll do my best to be a good friend! I turn 18 this nov
