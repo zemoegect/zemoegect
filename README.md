@@ -3,7 +3,7 @@
 <img src="https://i.ibb.co/MDGxnRYm/New-Project-14.png">
 <p align="center"> simula / simulacrum .. 17 . any terms .</p>
 <p align="center"> ‹　Int okai !﹕　C+H enc !　﹕　  eng　　</p>
-<p align="center">BYI ; memory issues, paranoia, ect blah blah blah,, neurodivergent and I only talk abt my interests
+<p align="center">BYI ; memory issues, paranoia, ect blah blah blah,, neurodivergent and I only talk abt my interests .. I like following ppl back hai but not all the time sorry 
 <br>
   <br>
   call me any name idm! ur gonna have to int with me first unless friends I'm so sorry I'm irrationally scared I'll curse someone if I talk to them first
