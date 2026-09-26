@@ -12,7 +12,7 @@
 dni; if ur weird (dark/proship, radqueers, bbs, ect) or just bigoted. I block freely but having a specific DNI makes me nervous 
 oh also DNI if you're friends with fourthkindred/whatever she goes by now. for my comfort and mental health.
 
-<a href="https://simulacrum.atabook.org/">ATABOOK</a>  :   <a href="https://victinicardd.carrd.co/">KINLIST</a> <a href="https://www.last.fm/user/dustyashess">what is simula listening to?</a>
+<a href="https://simulacrum.atabook.org/">ATABOOK</a>  :   <a href="https://victinicardd.carrd.co/">KINLIST</a> :  <a href="https://www.last.fm/user/dustyashess">what is simula listening to?</a>
 
 <br>
 extra ;;
