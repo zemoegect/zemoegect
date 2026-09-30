@@ -2,7 +2,7 @@
 
 <img src="https://i.ibb.co/MDGxnRYm/New-Project-14.png">
 <p align="center"> simula / simulacrum .. 17 . any terms .</p>
-<p align="center"> ‹　Int okai !﹕　C+H enc !　﹕　  eng　　</p>
+<p align="center"> ‹　Int okai !﹕　C+H enc !　﹕　  eng　++ Halloween/Christmas fanatic</p>
 <p align="center">
   call me any name idm! ur gonna have to int with me first unless friends I'm so sorry I'm irrationally scared I'll curse someone if I talk to them first
 <br>
