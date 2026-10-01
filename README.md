@@ -16,6 +16,6 @@ oh also DNI if you're friends with fourthkindred/whatever she goes by now. for m
 extra ;;
 feel free to gift me skins I think it's super kind!! idc if spam accounts follow me. I only rp with friends. again, I'm spoke levels of paranoid. my anxiety spikes very easily, but I rlly love making friends and want to! I'll do my best to be a good friend! I turn 18 this nov
 <br>
-thin ice ; any1 under 15
+thin ice ; any1 15/16 or under
 <br>
 that guy who you're trying to ignore ; dude quakitus live stream, aregect plushies, soul smp, unstable videos. I'm set for months.
