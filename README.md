@@ -1,9 +1,10 @@
-<img src="https://i.postimg.cc/hPWHDXcP/typewriter-(1).gif" >
+<img src="https://64.media.tumblr.com/214a997e4faaf208cba1a3d3c29d6701/f4bad44f967a1c12-f5/s75x75_c1/41b69419bb10b974411924fb3bc8adc0bc50f65a.gifv" >
 
-<img src="https://i.ibb.co/qGmyVnS/1000005220-removebg-preview-1.png" width="350">
+<img src="https://i.ibb.co/NgpSbMV0/New-Project-1.webp">
+
 <p align="center"> simula / simulacrum .. 17 . any terms . they/any </p>
 <p align="center"> 
-  inc ++ c+h okay unl stated otherwise . halloween / christmas fanatic . sans soulsmp main
+  inc ++ c+h okay unl stated otherwise . sans soulsmp main
 <p align="center">
   call me any name idm ,,, <I>ur gonna have to int with me first unless friends I'm so sorry I have irrational fears abt it like cursing people /gen</I>
 <br>
@@ -24,3 +25,9 @@ that guy who you're trying to ignore ; have you heard of S.A.M by Quiet Tomato. 
 <br>
 <br>
 HAI LAST THING BTW I HAVE VERY BAD MEMORY ISSUES!!!! I MAY FORGET TALKING TO PEOPLE!! IM SORRY
+
+
+
+$${\color{#1E3047}what}$$ 
+
+
