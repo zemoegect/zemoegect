@@ -2,7 +2,9 @@
 
 <img src="https://i.ibb.co/NgpSbMV0/New-Project-1.webp">
 
-<p align="center"> simula / simulacrum .. 17 . any terms . they/any </p>
+<p align="center"> $${\color{#ff9861}simula}$$. $${\color{#a667e6}simulacrum}$$ $${\color{#ffffff}17}$$  $${\color{#ff9861}any terms}$$ </p>
+
+
 <p align="center"> 
   inc ++ c+h okay unl stated otherwise . sans soulsmp main
 <p align="center">
@@ -28,6 +30,6 @@ HAI LAST THING BTW I HAVE VERY BAD MEMORY ISSUES!!!! I MAY FORGET TALKING TO PEO
 
 
 
-$${\color{#1E3047}what}$$ 
+ 
 
 
