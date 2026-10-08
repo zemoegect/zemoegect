@@ -5,14 +5,18 @@
 <img src="https://i.ibb.co/NgpSbMV0/New-Project-1.webp">
 
 <p align="center">
-  $${\color{#ff9861}simula}$$ $${\color{#ffffff}/}$$ $${\color{#a667e6}simulacrum}$$  $${\color{#ffeb88}.}$$ $${\color{#e8e59e}17}$$ $${\color{#ffffff}any terms}$$  $${\color{#ff9861}.}$$ $${\color{#ffffff}they/any}$$ 
+  $${\color{#ff9861}simula}$$ $${\color{#ffffff}/}$$ $${\color{#a667e6}simulacrum}$$  $${\color{#ffeb88}.}$$ $${\color{#ff9861}17}$$ $${\color{#ffffff}any terms}$$  $${\color{#a667e6}.}$$ $${\color{#ffeb88}they/any}$$ 
 ㅤ</br>
 </p>
 
-
-<p align="center"> 
-  inc ++ c+h okay unl stated otherwise . sans soulsmp main
-
+<p align="center">
+  $${\color{#ff9861}agender}$$ $${\color{#ffffff}pomorose/queer}$$ $${\color{#a667e6}++}$$  $${\color{#ffeb88}iwcare}$$ $${\color{#ff9861}always}$$ $${\color{#ffffff}fictkin++selfshipper}$$  $${\color{#a667e6}.}$$ $${\color{#ffeb88}multifan!artist}$$ 
+ㅤ</br>
+</p>
+<p align="center">
+  $${\color{#ff9861}c+h++int}$$ $${\color{#ffffff}enc}$$ $${\color{#a667e6}unless}$$  $${\color{#ffeb88}stated}$$ $${\color{#ff9861}otherwise}$$  
+ㅤ</br>
+</p>
 
   <img src="https://i.ibb.co/nMpxfpY3/New-Project-3.webp">
 <p align="center">
