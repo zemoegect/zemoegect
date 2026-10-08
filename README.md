@@ -31,6 +31,7 @@
  - I also go by Vanilla, Nilla is just the shortened version! its very dear to me and I'd love if you'd use it too
  - u can call me most kin names / nicknames! vanilla / simula / nilla are just my main chosen names
  - I prefer being called a selfshipper, not a yumeshipper
+ - nervous abt giving out my discord, I might say no! it's nothing against you!!!
  - everything else should be in my straw page..? I'll update this if I think of anything #yolo
 </details>
 
@@ -50,23 +51,31 @@
 I block any1 who makes me uncomfortable or paranoid ty ty!
 <br>
 thin ice ; project moon ( minus ruina ) or hetalia! I just won't participate in convos about it unless ur close
+- also tai and judelow fans. looks around
 </details>
 
 <a href="https://simulacrum.atabook.org/">ATABOOK</a>  :   <a href="https://victinicardd.carrd.co/">KINLIST</a> :  <a href="https://www.last.fm/user/dustyashess">what is simula listening to?</a> :  
-<br>
-<br>
-extra ;;
-feel free to gift me anythin I think it's super kind!! idc if spam accounts follow me. I only rp with friends. again, I'm spoke levels of paranoid. my anxiety spikes very easily, but I rlly love making friends and want to! my bday is nov 16th!!!! FANDOMS IN STRAWPAGE #ASK ME MY FAV DUOS (it's all of them)
-<br>
-ask for disc . I might say no, no offense to you!
-<br>
-  <br>
-that guy who you're trying to ignore ; have you heard of S.A.M by Quiet Tomato. have you seen soul smp. gopg and quakitus duo #abyss. yay
-<br>
-<br>
-HAI LAST THING BTW I HAVE VERY BAD MEMORY ISSUES!!!! I MAY FORGET TALKING TO PEOPLE!! IM SORRY
+<details>
+ <summary> $${\color{#a667e6} fav \space duos \space and \space ships ♡}$$</summary>
+  
+ ( ˶°ㅁ°) !!  
+ <br>
+Duos ( only mcyt, IDK about anything else that rlly has duos with names LOL ) ; Voidpetal , Slushie Duo , Sourpatch Kids , Revenant Duo , Paradox Duo , Worm Duo (ironic..) , Broken Clock , Glitch Wings , God duo , Glitch Duo , Funfettiwaffles , Loser Duo , Serious Duo , Spacewaffles , Happycakes , Baked Potato Boys , VoidWaffles , Grandiose Duo , Void Killers , Parallel Duo , Protag Duo , Sweet Duo , CrystalBlaze , Blindfold Brothers , Phoenix Duo , SolarFlare , Chromablaze , Gold Digger Duo , Daylilies , Shivering Sea Duo , Subspace Duo , Lightfury duo , Sea Serpent duo , BloodHounds , Inferno Duo , VoidJump , Amethyst Duo , Employment Duo , Monochromatic Duo , Colorless Duo , Tomodachi Duo , Shredded Wings , Shrike Duo , Spacebomb , Duality Duo , Appendix Duo , Devious duo , Trivia Duo , Sundial , Doomsday Duo , Paralysis Duo , Swan Duo , Carol , Utopia Duo , Dandelion Duo , Pride Duo , Midnight duo , Drastic Duo , FunRays , Destiny Duo , Sunscreen Duo , Starfox Duo , Fallenreign Duo , Dumbass duo , Copycat Duo , Banished Brothers , Anomaly Duo , Chaos / Orbital Duo , Partykillers , Missingno Duo , Parallelisms Duo , Luminary Duo , greenscreen duo , unspoken duo, ect
+- duos without names / I can't remember ; poafa and Zam, gopg and quakitus, mugm and quakitus , hazali and sans , and uh. div_y and pikatm I forgot that one..
 
+- I originally didn't list these and u can see why
+- can we have more poafa duos with names plz ty
 
+- ships ( not just mcyt, no bbs ) ; clownbo, zamfies, squidswag, fluxarata, rorebura, revmark, pikadiv, oriondiv, bellarev (? names..), foxica, fangle, toy fronnie, toy changle and mmm any tbh with those I like em all in aus n such.. playing toys, Acheliu, AcherSwan, Argelite, Astarlan, zamgi, Bronseele, Cerysilens, Cipherice, EvanYao, EverMarch, Hyarice, Barioru, RenHeng, RobiMarch, Sunaxa,  
+  
+<br>
+I block any1 who makes me uncomfortable or paranoid ty ty!
+<br>
+thin ice ; project moon ( minus ruina ) or hetalia! I just won't participate in convos about it unless ur close
+</details>
+
+<br>
+<img src="https://i.ibb.co/1t9FRjVv/New-Project-2.webp">
 
  
 
