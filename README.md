@@ -115,6 +115,8 @@ I know SO much media, I will probably know if it u ask me
 - xey ( oc )
 - Lycion ( dungeon meshi )
 - viviana kincaid
+
+
   some others I think idk I'm not sure abt them so I won't list them. I don't post art of this outside of toyhouse, and talking about it makes me nervous (ppl would kill you over this back in the day) so!!! but ik some people are non sharing and I didn't wanna lead anyone on..
   
 </details>
@@ -127,4 +129,4 @@ I know SO much media, I will probably know if it u ask me
 ㅤ</br>
 </p>
 
-
+cr ; oreycomet twt , strawberrieryz twt/tt , desirednull twt , izzypaw tumblr 
