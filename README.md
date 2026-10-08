@@ -56,7 +56,7 @@ thin ice ; project moon ( minus ruina ) or hetalia! I just won't participate in 
 
 <a href="https://simulacrum.atabook.org/">ATABOOK</a>  :   <a href="https://victinicardd.carrd.co/">KINLIST</a> :  <a href="https://www.last.fm/user/dustyashess">what is simula listening to?</a> :  
 <details>
- <summary> $${\color{#a667e6} fav \space duos \space and \space ships ♡}$$</summary>
+ <summary> $${\color{#ffffff} fav \space duos \space and \space ships ♡}$$</summary>
   
  ( ˶°ㅁ°) !!  
  <br>
@@ -65,18 +65,66 @@ Duos ( only mcyt, IDK about anything else that rlly has duos with names LOL ) ; 
 
 - I originally didn't list these and u can see why
 - can we have more poafa duos with names plz ty
+  <br>
 
-- ships ( not just mcyt, no bbs ) ; clownbo, zamfies, squidswag, fluxarata, rorebura, revmark, pikadiv, oriondiv, bellarev (? names..), foxica, fangle, toy fronnie, toy changle and mmm any tbh with those I like em all in aus n such.. playing toys, Acheliu, AcherSwan, Argelite, Astarlan, zamgi, Bronseele, Cerysilens, Cipherice, EvanYao, EverMarch, Hyarice, Barioru, RenHeng, RobiMarch, Sunaxa,  
+ships ( not just mcyt, no bbs ) ; clownbo, zamfies, squidswag, fluxarata, rorebura, revmark, pikadiv, oriondiv, bellarev (? names..), foxica, fangle, toy fronnie, toy changle and mmm any tbh with those I like em all in aus n such.. playing toys, Acheliu, AcherSwan, Argelite, Astarlan, zamgi, Bronseele, Cerysilens, Cipherice, EvanYao, EverMarch, Hyarice, Barioru, RenHeng, RobiMarch, Sunaxa, FlutterPie, RariPie, Twijack, RainbowDust, SpitDash, LyraBon, ConjunctionShipping, BlackCurrantShipping, HardenShipping, HunterShipping, NamelessShipping, BoutiqueShipping, OriginShipping, JellowShipping, EmpathShipping,  AmourShipping, JourneyShipping, KrazyShipping, ect
+- idk I named the ones I could think of.
+  
+</details>
+
+
+<details>
+ <summary> $${\color{#ffeb88} my \space fandoms \space ♡}$$</summary>
+  
+ ( ˶°ㅁ°) !!  
+ <br>
+mcyt ; unstable universe, lifesteal, lifesteal world, kings, sfawtde/dawtde, the rabbit hole, aregect, cl16 continuity, shiparg, statesmp / ish civ, parkour civ, pvp civ, speedrun academy, mcsr, bliss, unserious, kaboodle, abyss, wisp
+
+plans to watch ; flight, DaD, mace, whitepine, surface tension, etc. feel free to give me reqs
+
+other ; umamusume, honkai star rail, fnaf, pokemon, kirby, some roblox ( block tales & phighting ), cookie run, old mobile games, mlp, minesweeper & tetris, lapfox, space, chiikawa
+
+fnaf stuff why not ; all games, fnac, tnar, S.A.M, a lot of old fnaf fandom is what i know abt
   
 <br>
-I block any1 who makes me uncomfortable or paranoid ty ty!
 <br>
-thin ice ; project moon ( minus ruina ) or hetalia! I just won't participate in convos about it unless ur close
+I know SO much media, I will probably know if it u ask me
+</details>
+
+
+<details>
+ <summary> $${\color{#a667e6} mini \space f/o \space and \space kin \space list ♡}$$</summary>
+  
+ ( ˶°ㅁ°) !!  
+ <br>
+- KIN ; Full in card
+
+- high kins ; mangle ( FNAF, SAM, ect ), mark dracula, pure vanilla (kinda kinda not), Leafeon, zorua/zoroark ( and variants ), reshiram, uu!spoke, wifies ( clonefies, directorfies, the rabbit hole!wifies ), lyra heartstrings, reshiram
+
+- others that are important to mention ; 2.5/2.0!saps, victini, meowstic, assimilation, regect, Dan heng, cerydra, toy Bonnie, buttercream sunday, eclair cookie
+  
+<br>
+-F/Os ; I'ma selfshipper and have been for a very long time? 10+ years veteran lol. not non sharing with any, just be nice n kind
+
+- n harmonia ( pokemon , over 5+ years woaw. )
+- Yuki ( mayonaka punch )
+- chichi ( SAM )
+- Sunday, the herta, anaxa ( hsr )
+- phantom mangle
+- stormbringer cookie
+- xey ( oc )
+- Lycion ( dungeon meshi )
+- viviana kincaid
+  some others I think idk I'm not sure abt them so I won't list them. I don't post art of this outside of toyhouse, and talking about it makes me nervous (ppl would kill you over this back in the day) so!!! but ik some people are non sharing and I didn't wanna lead anyone on..
+  
 </details>
 
 <br>
 <img src="https://i.ibb.co/1t9FRjVv/New-Project-2.webp">
 
- 
+ <p align="center">
+  $${\color{#ff9861}awful}$$ $${\color{#ffffff}memory}$$ $${\color{#a667e6},}$$  $${\color{#ffeb88}I \space}$$ $${\color{#ff9861}may}$$ $${\color{#ffffff}not}$$  $${\color{#a667e6} remember}$$ $${\color{#ffeb88}a \space lot \space of \space things}$$ 
+ㅤ</br>
+</p>
 
 
