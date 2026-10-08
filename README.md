@@ -129,4 +129,4 @@ I know SO much media, I will probably know if it u ask me
 ㅤ</br>
 </p>
 
-cr ; oreycomet twt , strawberrieryz twt/tt , desirednull twt , izzypaw tumblr .. I made the graphics myself tho, just not the art :^
+cr ; oreycomet twt , strawberrieryz twt/tt , desirednull twt , izzypaw tumblr .. I made the graphics & psd used myself, just not the art!!
