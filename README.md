@@ -1,12 +1,20 @@
+<div align="center">
+
 <img src="https://64.media.tumblr.com/214a997e4faaf208cba1a3d3c29d6701/f4bad44f967a1c12-f5/s75x75_c1/41b69419bb10b974411924fb3bc8adc0bc50f65a.gifv" >
 
 <img src="https://i.ibb.co/NgpSbMV0/New-Project-1.webp">
 
-<p align="center"> $${\color{#ff9861}simula}$$. $${\color{#a667e6}simulacrum}$$ $${\color{#ffffff}17}$$  $${\color{#ff9861}any terms}$$ </p>
+<p align="center">
+  $${\color{#ff9861}simula}$$ $${\color{#ffffff}/}$$ $${\color{#a667e6}simulacrum}$$  $${\color{#ffeb88}.}$$ $${\color{#e8e59e}17}$$ $${\color{#ffffff}any terms}$$  $${\color{#ff9861}.}$$ $${\color{#ffffff}they/any}$$ 
+ㅤ</br>
+</p>
 
 
 <p align="center"> 
   inc ++ c+h okay unl stated otherwise . sans soulsmp main
+
+
+  <img src="https://i.ibb.co/nMpxfpY3/New-Project-3.webp">
 <p align="center">
   call me any name idm ,,, <I>ur gonna have to int with me first unless friends I'm so sorry I have irrational fears abt it like cursing people /gen</I>
 <br>
