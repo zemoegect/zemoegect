@@ -99,7 +99,7 @@ I know SO much media, I will probably know if it u ask me
  <br>
 - KIN ; Full in card
 
-- high kins ; mangle ( FNAF, SAM, ect ), mark dracula, pure vanilla (kinda kinda not), Leafeon, zorua/zoroark ( and variants ), reshiram, uu!spoke, wifies ( clonefies, directorfies, the rabbit hole!wifies ), lyra heartstrings, reshiram
+- high kins ; mangle ( FNAF, SAM, ect ), mark dracula, pure vanilla (kinda kinda not), Leafeon, zorua/zoroark ( and variants ), reshiram, uu!spoke, wifies ( clonefies, directorfies, the rabbit hole!wifies ), lyra heartstrings, reshiram, itsmonarchfr
 
 - others that are important to mention ; 2.5/2.0!saps, victini, meowstic, assimilation, regect, Dan heng, cerydra, toy Bonnie, buttercream sunday, eclair cookie
   
@@ -115,9 +115,10 @@ I know SO much media, I will probably know if it u ask me
 - xey ( oc )
 - Lycion ( dungeon meshi )
 - viviana kincaid
+- harvey / jelly bear / g3l4t1n_b34r ( idk his numbers in the name but I think that's right °^° )
+- some others I probably don't remember at all
 
-
-  some others I think idk I'm not sure abt them so I won't list them. I don't post art of this outside of toyhouse, and talking about it makes me nervous (ppl would kill you over this back in the day) so!!! but ik some people are non sharing and I didn't wanna lead anyone on..
+ ik some people are non sharing and I didn't wanna lead anyone on..
   
 </details>
 
@@ -130,3 +131,4 @@ I know SO much media, I will probably know if it u ask me
 </p>
 
 cr ; oreycomet twt , strawberrieryz twt/tt , desirednull twt , izzypaw tumblr .. I made the graphics & psd used myself, just not the art!!
+
