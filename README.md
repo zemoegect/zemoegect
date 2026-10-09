@@ -78,7 +78,7 @@ ships ( not just mcyt, no bbs ) ; clownbo, zamfies, squidswag, fluxarata, rorebu
   
  ( ˶°ㅁ°) !!  
  <br>
-mcyt ; unstable universe, lifesteal, lifesteal world, kings, sfawtde/dawtde, the rabbit hole, aregect, cl16 continuity, shiparg, statesmp / ish civ, parkour civ, pvp civ, speedrun academy, mcsr, bliss, unserious, kaboodle, abyss, wisp
+mcyt ; unstable universe, lifesteal, lifesteal world, kings, sfawtde/dawtde, the rabbit hole, aregect, cl16 continuity, shiparg, statesmp / ish civ, parkour civ, pvp civ, speedrun academy, mcsr, bliss, unserious, kaboodle, abyss, wisp, soulsmp
 
 plans to watch ; flight, DaD, mace, whitepine, surface tension, etc. feel free to give me reqs
 
