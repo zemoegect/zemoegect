@@ -49,7 +49,8 @@
 - friends or oomfs with fourthkindred, my ex eek! I feel like this is reasonable!
 - FERRISWHEELSHIPPING or ISSHUSHIPPING MAJOR DNI PLZ.
 - toxic yumeshippers or toxic fictionkins :(
-- if ur super into Napoleon / ship French historical figures. or like. ship historical figures genuinely. idm if it's a joke but if it's not it makes me uncomfortable 
+- if ur super into Napoleon / ship French historical figures. or like. ship historical figures genuinely. idm if it's a joke but if it's not it makes me uncomfortable
+- I can't believe I have to put this here but if your transmed or use 4chan/4tran fuck ooofff. I'm not even gonna engage with ur bullshit, go outside go outside please. INCLUDING if you use 4chan terms, u sound stupid.
   
 <br>
 I block any1 who makes me uncomfortable or paranoid ty ty!
