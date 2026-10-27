@@ -50,13 +50,12 @@
 - FERRISWHEELSHIPPING or ISSHUSHIPPING MAJOR DNI PLZ.
 - toxic yumeshippers or toxic fictionkins :(
 - if ur super into Napoleon / ship French historical figures. or like. ship historical figures genuinely. idm if it's a joke but if it's not it makes me uncomfortable
-- I can't believe I have to put this here but if your transmed or use 4chan/4tran fuck ooofff. I'm not even gonna engage with ur bullshit, go outside go outside please. INCLUDING if you use 4chan terms, u sound stupid.
+- I can't believe I have to put this here but if youre transmed or use 4chan/4tran fuck ooofff. I'm not even gonna engage with ur bullshit, go outside go outside please. INCLUDING if you use 4chan terms, u sound stupid.
   
 <br>
 I block any1 who makes me uncomfortable or paranoid ty ty!
 <br>
 thin ice ; project moon ( minus ruina ) or hetalia! I just won't participate in convos about it unless ur close
-- also tai and judelow fans. looks around
 </details>
 
 <a href="https://simulacrum.atabook.org/">ATABOOK</a>  :   <a href="https://victinicardd.carrd.co/">KINLIST</a> :  <a href="https://www.last.fm/user/dustyashess">what is simula listening to?</a> :  
